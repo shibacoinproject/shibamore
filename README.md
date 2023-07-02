@@ -1,4 +1,4 @@
-# coinshiba.xyz
+# shibamore.cloud
 
 [hi everyone I'm lonely...](https://discord.com/invite/cfEQXJwRq7)
 https://discord.com/invite/cfEQXJwRq7
